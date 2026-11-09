@@ -1,0 +1,2 @@
+- Unauthorized redistribution, re-uploading to other websites (e.g., Modrinth, external sites), and publishing modified versions without permission are strictly prohibited.
+- You are free to play this mod and showcase it in YouTube videos, streams, or other media. 
